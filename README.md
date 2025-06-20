@@ -7,6 +7,7 @@ In case you want to reach me:
   + email: azursevill@gmail.com
   + telegram: @dranik667
   + discord: dranik667#8075
+
 I'd rather have you address to me as they/them, but any kind of pronouns work!
 
 Fun fact: I hate doing graphic design, as my imagination completely blocks out.
